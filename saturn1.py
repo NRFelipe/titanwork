@@ -1,4 +1,4 @@
-aturn has many moons
+Saturn has many moons
 Mimas
 Dione
 Rhea
